@@ -1,2 +1,0 @@
-# AGROKART
-# AGROKART
